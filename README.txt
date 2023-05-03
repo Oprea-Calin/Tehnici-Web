@@ -1,0 +1,1 @@
+Pentru upload, se vor folosi cele 3 imagini din fisier.
